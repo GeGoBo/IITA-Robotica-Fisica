@@ -1,2 +1,0 @@
-# IITA-Robotica-Fisica
-:)
